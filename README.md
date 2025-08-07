@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/SanchitTaunk](https://github.com/SanchitTaunk)
 
-- 📫 How to reach me **taunksanchit@gmail.com**
+- 📫 Reach me at: **taunksanchit@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1UKY6cW7BYYBkLgW41_OErC6jOWJY52t-/view?usp=drive_link](https://drive.google.com/file/d/1UKY6cW7BYYBkLgW41_OErC6jOWJY52t-/view?usp=drive_link)
 
